@@ -1,1 +1,0 @@
-🎨 flashcards for art & technology :) 💻
